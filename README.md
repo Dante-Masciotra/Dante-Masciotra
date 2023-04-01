@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently Learning about Cyber Security and Hacking <br>💬 Ask me about FIRST Robotics and Hackathons<br>📫 How to reach me: masciotd@uwindsor.ca<br>⚡ Fun fact I am a licensed Scuba Diver
+🔭 I’m currently learning about Cyber Security and Hacking <br>💬 Ask me about FIRST Robotics and Hackathons<br>📫 How to reach me: masciotd@uwindsor.ca<br>⚡ Fun fact I am a licensed Scuba Diver
 
 
 ## 🌐 Socials:
